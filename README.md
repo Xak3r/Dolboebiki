@@ -1,5 +1,3 @@
 # Dolboebiki
 Mega cool rogalik
-gvvuyituyivguigvuy
-
-wasdd frqrewdcvge
+ssssssssssssssssssssssssssssss
