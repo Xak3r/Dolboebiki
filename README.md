@@ -2,5 +2,4 @@
 Mega cool rogalik
 
 
-
-хуй
+уууу
